@@ -1,3 +1,4 @@
 
-### Sore and/or raw skin inflamations suppresses your natural raw abilities? use NoPain.v4 to relieve that headache and other similar status derailments. Perform like a peeking lvl://34@d.uman whenever (Redrection performance a partial side-effect optianally increases hormones with booster shots capable. Apply responsibly)
+### A mad scientist driven by the passion of creating the most effective healing drug created the Pain Away. though he patented this now publicly available drug he is unable to profit from it. As it was stolen after his death. Pain Away. the health drug for all the masses.
+
 ![my image](/resources/lore/pain%20away%20ad.png)
